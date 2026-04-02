@@ -1,4 +1,4 @@
-
+upd Scripts for ultimate mining tycoon - auto-mine and inf-ores is the ultimate solution for ultimate mining tycoon players! Our scripts provide auto-mine and inf-ores, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your ultimate mining tycoon experience today!
 
 
 ---
